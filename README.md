@@ -15,6 +15,11 @@ MEU PROJETO
 ![IMG_1577](https://user-images.githubusercontent.com/111513080/200025375-cee621db-9c78-4834-bfc6-fbaec9453c7a.JPG)
 ![IMG_1583](https://user-images.githubusercontent.com/111513080/200025380-dd8877ee-ef69-41c4-b165-197ae8412779.JPG)
 ![IMG_1573](https://user-images.githubusercontent.com/111513080/200025386-adf690f4-30b7-4162-aab2-2513b6db2822.JPG)
+![IMG_1578 (1)](https://user-images.githubusercontent.com/111513080/200026234-c53625eb-d38d-4862-86d4-3a0617eb1b66.JPG)
+![IMG_1572 (1)](https://user-images.githubusercontent.com/111513080/200026242-55337387-e4fc-4b65-ac96-0cf9d377997d.JPG)
+![IMG_1584 (1)](https://user-images.githubusercontent.com/111513080/200026252-9c79d40f-a860-4f70-ab3f-9cd5244bdbd8.JPG)
+![IMG_1581 (1)](https://user-images.githubusercontent.com/111513080/200026254-6dc4aee8-fa72-44ae-8520-5317c6b31874.JPG)
+![Cópia de IMG_1580](https://user-images.githubusercontent.com/111513080/200026259-5a0c6982-0803-4885-b356-b2193433b1b6.JPG)
 
 ![IMG_1579](https://user-images.githubusercontent.com/111513080/200025402-5df85972-5fcc-4d93-9bf5-71867f45dbf7.JPG)
 
